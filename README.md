@@ -7,7 +7,7 @@
 
 💞️ I’m looking to collaborate on Data Science projects, AI-driven financial solutions, and open-source contributions.
 
-📫 How to reach me: [mmasoo@gmail.com]
+📫 How to reach me: [mmasood@gmail.com]
 
 😄 Pronouns: He/Him
 
